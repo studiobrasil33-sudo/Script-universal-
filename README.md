@@ -1,0 +1,2 @@
+# Script-universal-
+Melhor script 
